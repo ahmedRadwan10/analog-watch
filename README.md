@@ -1,1 +1,1 @@
-https://ahmedradwan10.github.io/clock/
+https://ahmedradwan10.github.io/analog-watch/
